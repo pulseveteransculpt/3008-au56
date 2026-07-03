@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with 3008 premium Scripts, the #1 Script. Includes teleport and auto-collect for unbeatable performance.
 
 
 
